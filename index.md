@@ -1,3 +1,5 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+Mingyeong Choi PhD
+cognitive/affective developmental neuroscience
+area: empathy, Theory of Mind, conceptual combination
